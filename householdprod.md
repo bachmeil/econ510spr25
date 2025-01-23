@@ -1,2 +1,3 @@
 [LIFE Magazine](https://vintagenewsdaily.com/a-series-of-vintage-photos-documented-a-day-in-the-life-of-a-1940s-housewife/)
 
+> In 1941, _LIFE_ magazine sent photographer William C. Shrout to document the lives of one of the biggest single demographics in the U.S: the 30 million housewives who did most of the washing, made beds, cooked meals and nursed almost all the babies of the nation, with little help, no wages and no other jobs.
